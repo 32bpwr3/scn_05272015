@@ -1,2 +1,3 @@
-# scn_05272015
-Hi
+# Shepherd Community News
+##May 27, 2015 Edition##
+
